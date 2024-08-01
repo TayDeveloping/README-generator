@@ -54,3 +54,4 @@ For any questions, please contact me using the information below:
 
 GitHub: [TayDeveloping]([https://github.com/your-github-username](https://github.com/TayDeveloping))
 
+[![Watch the video] [Untitled Video July 15, 2024 9_54 PM.webm](https://github.com/user-attachments/assets/b3911acd-6cbf-47f7-a7af-182d4dfdb240)
